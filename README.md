@@ -230,4 +230,4 @@ Battlestations Pacific is fully free to download, offering the complete version 
 Don't miss your chance to lead your troops in the Pacific War. Download Battlestations Pacific now and command the battlefield!
 
 ---
-**Last updated:** 2026-10-24 14:12:31 UTC
+**Last updated:** 2026-10-24 17:46:17 UTC
